@@ -43,7 +43,7 @@ Gained hands-on experience in analyzing real-world datasets, building dashboards
 
 Email: dinjulieto@gmail.com
 
-LinkedIn: 
+LinkedIn: https://www.linkedin.com/in/juliet-obianuju-dingwoke
 
 
 
